@@ -1,1 +1,1 @@
-# Was-a-Reduction-in-Seasonal-Influenza-Transmission-At-tributable-to-Non-pharmaceutical-Interventions
+# Seasonal_Influenza during COVID-19 in Japan
